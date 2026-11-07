@@ -213,4 +213,4 @@ Cliffhorse is available as a full free version, with all features and updates in
 Embark on an unforgettable journey in Cliffhorse — download now and enjoy the freedom of the open world!
 
 ---
-**Last updated:** 2026-11-06 21:49:25 UTC
+**Last updated:** 2026-11-07 01:22:25 UTC
